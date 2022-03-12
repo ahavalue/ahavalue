@@ -3,6 +3,9 @@
 ![image](https://user-images.githubusercontent.com/101384278/157812408-934fe35d-86c4-4a36-b2aa-73695dbd1e1c.png)
 > 人生的意义之一，在于为其他人创造价值。
 
+![image](https://user-images.githubusercontent.com/101384278/157994756-ac98cc1d-8a70-451f-8b95-bddb2ba236d8.png)
+> 最该首要处理的要事是谁？答案是：Ⅱ类。这些重要但不紧急的事情，因为没有截止日期的催促，常常就被我们一拖再拖，令我们陷入永远在处理Ⅰ类甚至Ⅲ类那些紧急事务的焦虑状态。而一旦有了空闲，我们又将时间毫无知觉地投入了Ⅳ类那些打发时间的娱乐或者无关紧要的琐事里。
+
 ## 苏格拉底
 
 ![image](https://user-images.githubusercontent.com/101384278/157993478-fb8c21c6-5416-4067-8796-2c1ce727f1fd.png)
